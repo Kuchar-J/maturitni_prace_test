@@ -1,1 +1,1 @@
-# maturitn-pr-ce
+# maturitni_prace_teas
